@@ -1,2 +1,2 @@
 ### My Resume
-https://amirazakaria.github.io/my-resume/
+https://amirazak11.github.io/Myresume/
